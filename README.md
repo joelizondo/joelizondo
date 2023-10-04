@@ -2,7 +2,7 @@
 
 Hi, I’m Jorge, but you can call me George. 
 
-I'm a Senior NET Developer from Costa Rica , 32 years old and 7 years of coding.
+I'm a Senior NET Developer from Costa Rica , 33 years old and 8 years of coding.
 
 A dog lover 🐕, an amateur mountain biker 🚴 and a good video-game player.
 
